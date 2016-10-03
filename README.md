@@ -1,3 +1,3 @@
 # Software-Development
 the great programmers project
-life is all about programming
+life is all about programming we dey
